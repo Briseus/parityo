@@ -1,3 +1,3 @@
-tipaton tammikuu :thumbs_up:
+tipaton tammikuu :thumbs_up: hei komentoriviltä
 
 kukkuu
