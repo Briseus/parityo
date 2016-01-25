@@ -1,5 +1,6 @@
-tipaton tammikuu :thumbs_up:
+﻿tipaton tammikuu :thumbs_up:
 
 kukkuu
 
-omat säädöt
+
+kukkuu x2
